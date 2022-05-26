@@ -1,1 +1,0 @@
-# yekdas-cihuy.gihub.oi
